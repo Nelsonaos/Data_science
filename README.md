@@ -97,3 +97,7 @@ Estas variables serán la base para la construcción de un modelo de *Machine Le
 
 
 ## 📞 **Contacto**
+
+Tel:3517665977
+Mail:Nelsooviedo@gmail.com    
+https://www.linkedin.com/in/nelsooviedo415
